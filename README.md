@@ -16,18 +16,6 @@ About me
 
 
 
-javascript typescript react graphql nodejs
-
-
-sJKLFDVNss,.NFLkc;nDML<FNCmn,a.fdl.l,ncmkldnA;CKLK;LA;LC;ALLK;CDKLACNKLDMSklknaklsndkfcslk;f
-
-![flower-purple-lical-blosso](https://github.com/MichaelJohnson101/MichaelJohnson101/assets/135821361/e606520c-6486-4f59-96e1-5d28638dbf26)
-fkajsnfdlkalkfnask
-
-
-
-
-
 
 
 
